@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shwetakushwaha.sh@gmail.com**
 
-- ⚡ Fun fact **Fun of Code.**
+- ⚡ **Fun of Code.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
